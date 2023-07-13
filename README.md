@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Azwer-ullah
-- i am a student and aim to be a programmer in future,,
+- i am a student and aim to be a computer programmer in future,,
 You can reach me or contact me through my email: azwerop@gmail.com
 
 
